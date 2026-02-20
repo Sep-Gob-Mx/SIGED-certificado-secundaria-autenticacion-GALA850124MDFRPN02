@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GALA850124MDFRPN02
+GALA850124MDFRPN02
